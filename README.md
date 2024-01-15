@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning HTML,CSS,JS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me gmail- rodrigo19hmarinho@gmail.com
-- instagram- @_rodrigohenri_
+- instagram- _rodrigohenri_
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: none at the moment, rsrs
 
